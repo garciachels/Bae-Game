@@ -1,1 +1,1 @@
-Fun game for my gorgeous girlfiend
+Fun game for my gorgeous girlfriend
